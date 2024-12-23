@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Harisha-2422
+- 👀 I’m interested in SDE(Fulltime/intern)
+- 🌱 I’m 2024 passed out 
+- 📫 How to reach me - www.linkedin.com/in/harisha-j-b142aa275
